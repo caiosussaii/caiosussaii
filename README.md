@@ -1,4 +1,4 @@
-### bem vindo ao meu maravilho e magnífico perfil 👋
+### bem vindo ao meu maravilhoso e magnífico perfil 👋
 
 meu nome é Caio Sussai
 
