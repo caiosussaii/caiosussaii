@@ -3,8 +3,8 @@
 meu nome é Caio Sussai
 
 - Estou estudando na [Alura](https://www.alura.com.br)
-- Estou me desenvolvendo na linguagme JavaScript
-- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
+- Estou me desenvolvendo na linguagem JavaScript
+- Ultilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 - Amo Deus e minha família acima de tudo
 
 ### Vocẽ pode entrar em contato comigo 📧
