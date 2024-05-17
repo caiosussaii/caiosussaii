@@ -9,7 +9,7 @@ meu nome é Caio Sussai
 - Estou aprendendo GitHub, com muita dificuldade mas estou kk
 - Sou péssimo na área de informática, mas sou bom no futebol
 
-### Vocẽ pode entrar em contato comigo 📧
+### Você pode entrar em contato comigo 📧
 
 caiosussai@gmail.com
 @caiosussai_7
