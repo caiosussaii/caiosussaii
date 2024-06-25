@@ -13,6 +13,7 @@ meu nome é Caio Sussai
 - Sou comprometido com TUDO que faço
 - Moro em Itapecerica da Serra
 - Trabalho como administrador, especialista em contas
+- Gosto de passar meu tempo livre com amigos e família
 
 
 ### Você pode entrar em contato comigo 📧
