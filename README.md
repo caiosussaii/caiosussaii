@@ -8,6 +8,9 @@ meu nome é Caio Sussai
 - Amo Deus e minha família acima de tudo
 - Estou aprendendo GitHub, com muita dificuldade mas estou kk
 - Sou péssimo na área de informática, mas sou bom no futebol
+- I am 17 years
+- Sou especialista em amarrar ferragens 
+- Sou comprometido com TUDO que façoyhut\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
 
 ### Você pode entrar em contato comigo 📧
 
