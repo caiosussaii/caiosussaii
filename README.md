@@ -14,6 +14,9 @@ meu nome é Caio Sussai
 - Moro em Itapecerica da Serra
 - Trabalho como administrador, especialista em contas
 - Gosto de passar meu tempo livre com amigos e família
+- Nesse ano de 2024 me aprofundei na área da informática e consegui compreender o quanto essa área vai me ajudar na minha profisional, pois pretendo ser engenheiro e nessa profissão irei utilizar tecnologia.
+- Estou estudando bastante para o ENEM, pois sei o quanto essa prova é importante e que pode mudar a minha vida
+- Oro todos os dias e reconheço Jesus como meu único Salvador
 
 
 ### Você pode entrar em contato comigo 📧
