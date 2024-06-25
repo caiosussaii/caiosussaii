@@ -10,7 +10,10 @@ meu nome é Caio Sussai
 - Sou péssimo na área de informática, mas sou bom no futebol
 - I am 17 years
 - Sou especialista em amarrar ferragens 
-- Sou comprometido com TUDO que façoyhut\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
+- Sou comprometido com TUDO que faço
+- Moro em Itapecerica da Serra
+- Trabalho como administrador, especialista em contas
+
 
 ### Você pode entrar em contato comigo 📧
 
